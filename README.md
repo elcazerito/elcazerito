@@ -1,5 +1,5 @@
 # 💫 About Me:
-Etudiant en informatique 💻 <br>Spécialisé dans le web 🌐<br>19 ans 🎂<br>En live 2 - 3 fois par semaine sur Twitch 🔴<br>
+Etudiant en informatique 💻 <br>Spécialisé dans le web 🌐<br>19 ans 🎂<br>En live 2 - 5 fois par semaine sur Twitch 🔴<br>
 
 
 ## 🌐 Socials:
